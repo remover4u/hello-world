@@ -1,2 +1,3 @@
 # hello-world
-제발 좀 
+I think i will quit this service. 
+anyway. ;;; LOL
